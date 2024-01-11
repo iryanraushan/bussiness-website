@@ -1,3 +1,3 @@
 ## Preview
 
-![screencapture-iryanraushan-github-io-bussiness-website-2024-01-11-11_58_13](https://github.com/iryanraushan/bussiness-website/assets/83304272/a9279bbb-a742-4b16-9fee-9c528358f7c8)
+![screencapture-iryanraushan-github-io-bussiness-website-2024-01-11-12_01_59](https://github.com/iryanraushan/bussiness-website/assets/83304272/023a6db9-e7f5-4ff3-abf7-8c15e1657e6b)
